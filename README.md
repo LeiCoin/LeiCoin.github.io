@@ -1,1 +1,1 @@
-## The Future of cryptocurrency
+## The Future of Cryptocurrency
